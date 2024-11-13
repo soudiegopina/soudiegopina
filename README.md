@@ -29,7 +29,7 @@ Com uma sólida experiência em mecânica de usinagem e mais de quatro anos na c
 ### Como Me Encontrar
 📧 **Email**: dpina3648@gmail.com  
 🔗 **LinkedIn**: https://www.linkedin.com/in/diego-pina-7a6ab2332/
-📊 **Projetos e Cases**: Aqui no GitHub
+
 
 ---
 
